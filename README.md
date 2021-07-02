@@ -8,5 +8,8 @@
 4. *tive a grande satisfação de conhecer a [tecno start][1] foi um* **momento chave da minha vida**
 5. *Por enquanto é só pessoal vou atualizando os motivos aqui daqui em diante*
 
+  **_Me Sigam no [instagram][2]_**
+
 
 [1]: https://tecnostart.com.br/
+[2]: https://www.instagram.com/duh_rojas/
