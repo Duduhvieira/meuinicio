@@ -8,7 +8,7 @@
 4. *tive a grande satisfação de conhecer a [tecno start][1] foi um* **momento chave da minha vida**
 5. *Por enquanto é só pessoal vou atualizando os motivos aqui daqui em diante*
 
-  **_Me Sigam no [instagram][2] e [linkedIn][3]  _**
+  **_Me Sigam no [instagram][2] e [linkedIn][3]_**
   
 
 [1]: https://tecnostart.com.br/
